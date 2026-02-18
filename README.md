@@ -1,2 +1,2 @@
-# starflight privacy and support
+# HorizonX2 privacy and support
 
